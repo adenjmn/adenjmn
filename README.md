@@ -1,4 +1,4 @@
-### i 👋, I'm Ade Nurjaman
+### Hi 👋, I'm Ade Nurjaman
 
 
 ### 🌐 Socials:
